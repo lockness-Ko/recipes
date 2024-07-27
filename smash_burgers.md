@@ -1,0 +1,5 @@
+# Smash Burgers
+
+## Ingredients
+
+## Method
